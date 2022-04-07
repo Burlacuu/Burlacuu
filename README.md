@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Burlacu
+- 👀 I have 16 years old
+- 🌱 My discord server : https://discord.gg/utN864hrqP
+- 💞️ Jr. Dev in vRP
